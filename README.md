@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on tcs
 - 📫 How to reach me .. give me a push request
 - 😄 Pronouns: He. cz i cant  be like him..
-- ⚡ Fun fact: go watch sheldon for that😏
 
 <!---
 haneenmohd00/haneenmohd00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
